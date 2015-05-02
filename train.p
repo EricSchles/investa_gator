@@ -159,4 +159,79 @@ tp91
 a(g89
 g90
 tp92
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***(please send a picture),to set up an appointment to come in. Thank You!!                  '
+p93
+S'trafficking'
+p94
+tp95
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***(please send a picture),to set up an appointment to come in. Thank You!!                  '
+p96
+S'trafficking'
+p97
+tp98
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p99
+S'trafficking'
+p100
+tp101
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p102
+S'trafficking'
+p103
+tp104
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p105
+S'trafficking'
+p106
+tp107
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p108
+S'trafficking'
+p109
+tp110
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p111
+S'trafficking'
+p112
+tp113
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p114
+S'trafficking'
+p115
+tp116
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p117
+S'trafficking'
+p118
+tp119
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-379-3344***AND SEND A PICTURE,to set up an appointment to come in. Thank You!!                  '
+p120
+S'trafficking'
+p121
+tp122
+a(V                                                              ~ KRI$TINA ~....... \u2605 PICS ARE REA££Y ME!! \u2605~FETISH FRIENDLY~        ~PARTY FRIENDLYI\u2605NO TEXTS \u2605 NO BLOCKED CALLS\u2605 \u2605\u2605\u2605\u2605CALL ME  @ 7I7\u2605 557 **9I74                  
+p123
+S'trafficking'
+p124
+tp125
+a(V                                                              ~ KRI$TINA ~....... \u2605 PICS ARE REA££Y ME!! \u2605~FETISH FRIENDLY~        ~PARTY FRIENDLYI\u2605NO TEXTS \u2605 NO BLOCKED CALLS\u2605 \u2605\u2605\u2605\u2605CALL ME  @ 7I7\u2605 557 **9I74                  
+p126
+S'trafficking'
+p127
+tp128
+a(V                                                              \u2764 I love spending quality time with a loving, well mannered, upscale gentlemen that desire Platinum level service. Especially after a hard stressful day. I'm here to make your fantasy's and desires come true. If you are looking for a unforgettable experience that will leave you smiling for weeks and coming back for more, you'll appreciate my companionship ..Angie 503-928-0753 No explicit questions on the phone please                  
+p129
+S'trafficking'
+p130
+tp131
+a(V                                                              \u2728\u2728\u2728 \u2014\u2014\u2014\u2014 GRAND OPENING \u2014\u2014\u2014\u2014 \u2728\u2728\u2728   \u25ba Experienced staff  know how to treat you !\u25ba Staffs Mature with a great attitude\u2728\u2728\u2728 \u2014\u2014\u2014\u2014 sweet SPA service \u2014\u2014\u2014\u2014 \u2728\u2728\u2728 \u25ba Swedish/ Deep Tissue / Shiatsu \u25ba We Promise You won't regret!!!\u25ba Let us make you stress free one day at a time \u25ba 97-16 Metropolitan ave Forest hill NY 11375\u25ba 347-502-5184 \u25ba Open 7 Days and 9 a.m. - 2 a.m.\u25ba Rego park, Ozon park, Forest Hill, Cypress Hill, Ridgewood                   
+p132
+S'trafficking'
+p133
+tp134
+a(S'                                                              Clean, Safe, Busy Midtown  Bodyrub Spa, seeking attractive, fit, reliable  girls.between the ages of 20 to 30 years old for bodyworks . (full time or part time work, immediate openings ) Must be clean, well groomed, reliable and have a nice friendly personality. Latin, European, Caucasian and Asian Girls preferred but all others will be considered Please ***CALL NOW 347-667-9718***AND SEND A PICTURE, then set up an appointment to come in. Thank You!!                  '
+p135
+S'trafficking'
+p136
+tp137
 a.
